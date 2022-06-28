@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @HemantiSD
 - 👀 I’m interested in leadership and management 
 - 🌱 I’m currently learning Silicon Oasis, California
-- 💞️ I’m looking to collaborate on Project Managment 
+- 💞️ I’m looking to collaborate on Sales | Territory | Channel and Project Managment 
 - 📫 How to reach me hemantisd@gmail.com
 
 <!---
